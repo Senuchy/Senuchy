@@ -9,7 +9,7 @@
 
 # 🐾  Senuchy 
 
-*「 Write beautiful code, live a lovely life 」*
+*「 You will always be a free summer 」*
 
 </div>
 
